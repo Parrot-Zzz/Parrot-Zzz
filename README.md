@@ -1,1 +1,1 @@
-<img width="200" height="114" alt="odyssey-duo-wifies" src="https://github.com/user-attachments/assets/fb111376-4885-4c4d-8885-8a345cf758ed" />
+<img width="498" height="281" alt="odyssey-duo-parrotx2" src="https://github.com/user-attachments/assets/0d9aff9b-dfcd-4396-be5e-c8dd61bbc5b4" />
