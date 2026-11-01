@@ -1,2 +1,2 @@
-![Uploading odyssey-duo-parrotx2.gif…]()
+![Uploadodyssey-duo-parrotx2.gif…]()
 
